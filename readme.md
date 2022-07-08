@@ -1,1 +1,2 @@
 Salomon Levi
+Silvestre Novaro
